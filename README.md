@@ -1,0 +1,2 @@
+# tarefapadroesdeprojeto02Exemplo01Acoplados
+# tarefapadroesdeprojeto02Exemplo001Acoplados
